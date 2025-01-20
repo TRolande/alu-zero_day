@@ -1,3 +1,5 @@
 cd
 rw
-move
+movjuiop[][p;oilkuhyjgfdcfvhjkilop[i
+mv rm]
+`
